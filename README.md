@@ -39,7 +39,7 @@
 
 点击访问：<a href="https://hj-251.pages.dev/">网站官方</a>
 
-点击访问：<a href="https://hj-258.pages.dev/">海角社区</a>
+点击访问：<a href="https://hj-258.pages.dev/">海角视频社区</a>
 
 主要内容：
 
