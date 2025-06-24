@@ -15,7 +15,7 @@
 
 点击访问：<a href="https://heiliaohongling.pages.dev/">91吃瓜</a>
 
-点击访问：<a href="https://hj-251.pages.dev/">黑料网</a>
+点击访问：<a href="https://hj-251.pages.dev/">网站官方</a>
 
 点击访问：<a href="https://hj-258.pages.dev/">海角社区</a>
 
@@ -59,4 +59,4 @@ Telegram频道传送门：汇集优质频道资源，涵盖科技、娱乐、学
 
 《51吃瓜》是一个实时更新的娱乐资讯平台，专注分享明星八卦、网络热点、社会趣闻等内容。这里有最新的爆料、最全的吃瓜信息，是网友了解娱乐圈动态、放松解压的首选平台。每天来51吃瓜，精彩不断。
 
-[Canonical link](https://github.com/mgchigua300/mgchigua8763）
+[Canonical link](https://github.com/mgchigua300/mgchiua9812）
